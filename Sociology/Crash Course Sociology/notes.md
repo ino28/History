@@ -1,5 +1,12 @@
 #### 1 Intro: what is sociology
 
+*Auguste Comte* (1800): French philosopher, "Father of Sociology".
+
+Sociological perspective:
+
+- seeing the general in the particular
+- seeing the strange in the familiar. 
+
 #### 2 Major sociological Paradigms
 
 #### 3 Sociology and the scientific method
